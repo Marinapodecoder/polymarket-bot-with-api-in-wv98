@@ -1,4 +1,4 @@
-# 
+# best Trading Bot for Polymarket - liquidity-provision and scalping-strategies is the best Polymarket trading-bot, featuring liquidity-provision and scalping-strategies. Smart,
 
 
 
